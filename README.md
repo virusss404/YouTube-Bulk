@@ -1,2 +1,2 @@
 # YouTube-Bulk
-virusss404/FUCK-BLUM
+[@virusss404](https://t.me/virussss404)
